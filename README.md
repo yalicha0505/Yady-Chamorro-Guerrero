@@ -1,1 +1,0 @@
-# Yady-Chamorro-Guerrero
